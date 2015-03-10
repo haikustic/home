@@ -1,1 +1,5 @@
 # home
+
+Art 
+Explore
+Innovate
